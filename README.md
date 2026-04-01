@@ -1,4 +1,4 @@
-## Hi, I'm [kq5y](https://kq5.jp/about/) 👋
+## Hi, I'm [kq5y](https://kq5.jp/en/about/) 👋
 
 ![pvc](https://count.getloli.com/@kq5y?name=kq5y&theme=kyun&padding=6&offset=0&align=top&scale=1&pixelated=1&darkmode=auto)
 
